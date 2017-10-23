@@ -1,7 +1,14 @@
 # Nibiru-Reserve-System
+
+
 The financial system for Noone Society Financial Services
+
+
 Secured Party No. #7192016NIO
+
+
 Article of Organization
+
 2016 July, 19, N.E.Y. 52
 
 
