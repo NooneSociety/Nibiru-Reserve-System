@@ -8,7 +8,7 @@ This code of conduct outlines our expectations for all those who participate in 
 
 We invite all those who participate in Nibiru Reserve System to help us create safe and positive experiences for everyone.
 
-## 2. Open Source Civilionship
+## 2. Open Source Civilianship
 
 A supplemental goal of this Code of Conduct is to increase open source civilianship by encouraging participants to recognize and strengthen the relationships between our actions and their effects on our community.
 
