@@ -12,7 +12,7 @@ Article of Organization
 2016 July, 19, N.E.Y. 52
 
 
-KNOW ALL MEN AND WOMEN BY THESE PRESENTS. I.:Dr. Lawiy-Zodok:El:., General Solutionist and Notary Public, for on behalf of The NNoocratic Government©®, and all civilians throughout the world over, I, hereby, here-now, establish Omni Insured Deposit Organization©®, and Nibiru Pool Reserves©® and all subsidiaries, affiliate, family organizations, in accordance with the Laws, Rules, Policy, Procedures, and Ordinances, of Noone Society©®, a Omniversal, Natural, Indigenous, Tribunal, Municipal, and Governmental Noocracy and all empires, kingdoms, and nations in accordance with the presentment and publication of our Noone Society Intergalactic Treaty of Peace and Friendship, referenced here:
+KNOW ALL MEN AND WOMEN BY THESE PRESENTS. I.:Dr. Lawiy-Zodok:El:., General Solutionist and Notary Public, for on behalf of The NNoocratic Government©®, and all civilians throughout the world over, I, hereby, here-now, establish Omni Insured Deposit Organization©®, and Nibiru Pool Reserves©® and all subsidiaries, affiliate, family organizations, in accordance with the Laws, Rules, Policy, Procedures, and Ordinances, of the Noocratic Government©®, a Omniversal, Natural, Indigenous, Tribunal, Municipal, and Governmental Noocracy and all empires, kingdoms, and nations in accordance with the presentment and publication of our Imperial Government Intergalactic Treaty of Peace and Friendship, referenced here:
 
 https://www.scribd.com/doc/274034875/Noon-Society-Treaty-of-Peace-and-Friendship.
 
